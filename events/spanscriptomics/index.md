@@ -44,7 +44,7 @@ Welcome! Click the button below to register your interest
 
 ## Información práctica
 
-**Cuándo:** del 29 al 30 de noviembre de 2021 (todas las zonas horarias) \\
+**Cuándo:** del 29 al 30 de Noviembre de 2021 (todas las zonas horarias) \\
 **Quién:** Hablantes nativos de español \\
 **Costo:** Gratis \\
 **Formato:** Virtual y asincrónico. Todas las sesiones de capacitación están pregrabadas, puedes trabajar en ellas a tu propio ritmo, con instructores disponibles en línea para brindar asistencia durante el período de 2 días. \\
